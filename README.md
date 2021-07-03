@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @giopoggi2
+- 👀 I’m interested in everything connected to coding
+- 🌱 I’m currently learning Java
+- 💞️ I’m not really interested in collabs but if you want to do it, I could agree
+- 📫 If you want to reach me send an e-mail to giopoggi11@gmail.com, it could take me between 10 minutes and a week before responding.
